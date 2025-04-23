@@ -1,0 +1,1 @@
+Dupla: Adrian e Elaine;
